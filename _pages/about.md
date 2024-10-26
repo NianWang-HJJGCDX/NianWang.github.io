@@ -11,5 +11,5 @@ I am Nian Wang (王念), Ph.D. candidate from school of computer science, Xi’a
 
 I am now serving as a reviewer of related fields for journal IEEE TIP, TMM, TCSVT, SPL and Pattern Recognition, Knowledge-Based Systems etc.
 
-I am interested academic cooperation. If you are seeking any form of it, please feel free to email me at nianwang04@outlook.com.
+I am interested at academic cooperation. If you are seeking any form of it, please feel free to email me at nianwang04@outlook.com.
 
